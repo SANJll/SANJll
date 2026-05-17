@@ -1,9 +1,9 @@
-<div align="center"><img src="https://file.garden/aLb51Fo8eB2dIZRH/image_2026-05-17_075249227.png" /></div>
+<div align="center"><img src="https://file.garden/aLb51Fo8eB2dIZRH/image_2026-05-17_082042470.png" /></div>
 <div align="center">⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯</div>
 ㅤ
 <p align="center">
-ㅤ $${\color{#D2862D}◜}$$ㅤ $${\color{#171C26}cause}$$ $${\color{#3A2D29}its}$$ $${\color{#5C3E2B}not}$$ $${\color{#87532E}just}$$ $${\color{#A86331}a}$$ ㅤ $${\color{#C0772F}figure}$$ $${\color{#D2862D}of}$$ $${\color{#E8982A}speech}$$ $${\color{#FDAA28},}$$ ㅤㅤ</br>
-$${\color{#171C26}you}$$ $${\color{#3A2D29}got}$$ $${\color{#5C3E2B}me}$$ $${\color{#87532E}down}$$ ㅤ $${\color{#A86331}on}$$ $${\color{#C0772F}my}$$ $${\color{#D2862D}knees}$$ $${\color{#FDAA28}♡}$$ ㅤ $${\color{#5C3E2B}◞}$$ ㅤ</br>
+ㅤ $${\color{#50334A}◜}$$ㅤ $${\color{#171C26}cause}$$ $${\color{#332738}its}$$ $${\color{#50334A}not}$$ $${\color{#71405F}just}$$ $${\color{#8F4C72}a}$$ ㅤ $${\color{#A55F76}figure}$$ $${\color{#BB727B}of}$$ $${\color{#D18480}speech}$$ $${\color{#E59584},}$$ ㅤㅤ</br>
+$${\color{#171C26}you}$$ $${\color{#332738}got}$$ $${\color{#50334A}me}$$ $${\color{#71405F}down}$$ ㅤ $${\color{#8F4C72}on}$$ $${\color{#A55F76}my}$$ $${\color{#BB727B}knees}$$ $${\color{#D18480}♡}$$ ㅤ $${\color{#50334A}◞}$$ ㅤ</br>
 </p>
 
 <div align="center">mtf lesbian sanji forever</div>
